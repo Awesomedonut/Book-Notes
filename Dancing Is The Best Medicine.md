@@ -4,10 +4,11 @@ Status: currently reading
 Authors:
 Dr. Julia F. Christensen
 - studied psychology and neuroscience
-- ballet and tango dancer
+- Danish ballet and tango dancer
+
 Dr. Dong-Seon Chang
 - studied cognitive science
-- swing dancer
+- German swing dancer
 
 Overall thoughts:
 - A lot of it feels very common-sense to me, as a long-time dancer

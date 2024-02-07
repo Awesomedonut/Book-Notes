@@ -4,6 +4,7 @@ One of my 2024 New Year's Resolutions was to take more notes while reading--I re
 
 Books in this repo:
 - Dancing Is The Best Medicine 🔖
+- Subtract 🔖
 
 Books I plan on adding soon:
 
