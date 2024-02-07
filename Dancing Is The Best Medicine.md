@@ -11,6 +11,7 @@ Dr. Dong-Seon Chang
 - German swing dancer
 
 Overall thoughts:
+- TLDR: kind, passionate explaination of why dance is awesome!
 - A lot of it feels very common-sense to me, as a long-time dancer
 - Good introductory-level book that will likely bore more hardcore readers who are already familiar with the subject
 - Authors tend to ramble a lot
