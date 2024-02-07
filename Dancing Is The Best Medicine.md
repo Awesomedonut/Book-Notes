@@ -1,4 +1,6 @@
 # Dancing Is The Best Medicine: The Science Of How Moving To A Beat Is Good For Body, Brain, And Soul
+Status: currently reading
+
 Authors:
 Dr. Julia F. Christensen
 - studied psychology and neuroscience
@@ -15,6 +17,7 @@ Overall thoughts:
 
 Favourite Passages & Quotes:
 - (1) Solo Dance--Rhythm I Cannot Resist
+
   ![](passage_pics/Screenshot%202024-02-06%20at%203.48.56%20PM.png)
   ![](passage_pics/Screenshot%202024-02-06%20at%203.50.32%20PM.png)
   ![](passage_pics/Screenshot%202024-02-06%20at%203.52.34%20PM.png)
