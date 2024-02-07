@@ -20,3 +20,5 @@ Favourite Passages & Quotes:
   ![](/passage_pics/Screenshot 2024-02-06 at 3.52.34 PM.png)
   ![](/passage_pics/Screenshot 2024-02-06 at 3.53.36 PM.png)
   ![](/passage_pics/Screenshot 2024-02-06 at 3.55.55 PM.png)
+
+  ![test2](passage_pics/Screenshot%202024-02-06%20at%203.48.56%20PM.png)
