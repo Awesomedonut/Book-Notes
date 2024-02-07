@@ -15,7 +15,7 @@ Overall thoughts:
 
 Favourite Passages & Quotes:
 - (1) Solo Dance--Rhythm I Cannot Resist
-  ![test](/passage_pics/Screenshot 2024-02-06 at 3.48.56 PM.png)
+  ![test](passage_pics/Screenshot 2024-02-06 at 3.48.56 PM.png)
   ![](/passage_pics/Screenshot 2024-02-06 at 3.50.32 PM.png)
   ![](/passage_pics/Screenshot 2024-02-06 at 3.52.34 PM.png)
   ![](/passage_pics/Screenshot 2024-02-06 at 3.53.36 PM.png)
