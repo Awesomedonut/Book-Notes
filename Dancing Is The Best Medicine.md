@@ -26,3 +26,10 @@ Favourite Passages & Quotes:
   ![](passage_pics/Screenshot%202024-02-06%20at%203.52.34%20PM.png)
   ![](passage_pics/Screenshot%202024-02-06%20at%203.53.36%20PM.png)
   ![](passage_pics/Screenshot%202024-02-06%20at%203.55.55%20PM.png)
+
+- (2) Partner Dance--Do You Speak Dance?
+
+![](passage_pics/Screenshot%202024-02-08%20at%209.29.27%20AM.png)
+![](passage_pics/Screenshot%202024-02-08%20at%209.31.10%20AM.png)
+![](passage_pics/Screenshot%202024-02-08%20at%209.32.47%20AM.png)
+![](passage_pics/Screenshot%202024-02-08%20at%209.33.15%20AM.png)
