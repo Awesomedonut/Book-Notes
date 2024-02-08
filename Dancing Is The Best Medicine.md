@@ -14,8 +14,9 @@ Overall thoughts:
 - TLDR: kind, passionate explaination of why dance is awesome!
 - A lot of it feels very common-sense to me, as a long-time dancer
 - Good introductory-level book that will likely bore more hardcore readers who are already familiar with the subject
-- Authors tend to ramble a lot
-- Regardless, very wholesome book
+- Authors tend to ramble a lot; this results in a cozy, relaxed tone
+- Lots of side stories and anecdotes
+- Very wholesome book
 
 Favourite Passages & Quotes:
 - (1) Solo Dance--Rhythm I Cannot Resist
